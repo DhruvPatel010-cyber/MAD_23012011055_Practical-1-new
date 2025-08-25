@@ -32,3 +32,17 @@
 <img width="506" height="775" alt="image" src="https://github.com/user-attachments/assets/fb7d20f2-611e-4a93-b63a-0a41d884381e" />
 <img width="319" height="215" alt="image" src="https://github.com/user-attachments/assets/7408c803-52e7-484e-b960-fcad39a71a72" />
 
+#### 11
+<img width="481" height="453" alt="image" src="https://github.com/user-attachments/assets/70e0a77b-0e8b-408b-b5e2-9ba724dbf4ce" />
+
+## Exercises
+
+#### 1
+<img width="478" height="198" alt="image" src="https://github.com/user-attachments/assets/f6477e63-11d8-43cb-a63d-f784c438696c" />
+
+#### 2
+<img width="509" height="691" alt="image" src="https://github.com/user-attachments/assets/095cd273-55d6-4e17-b1cc-b43d61453109" />
+<img width="340" height="440" alt="image" src="https://github.com/user-attachments/assets/a834d847-3dc2-4325-8ca5-a4a1b68ba581" />
+
+
+
